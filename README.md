@@ -24,8 +24,5 @@ main fandoms : osc, dw, fnaf, rodamrix, tadc, md. blocktales, lhg, terraria!!!
 basic dni criteria, proshippers, people who CANNOT stand opinions
 
 
-![ggoob2](https://github.com/user-attachments/assets/6c1f59d1-ef0b-48f6-a854-99b2d7baf622)
-
-
 
 ![dividerup](https://github.com/user-attachments/assets/b7e36fa4-e9a5-4fa6-835e-296b34677f1d)
