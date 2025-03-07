@@ -7,19 +7,25 @@
 hi hi hi!! my namez r kaden , batzy or evi!!!!!!!!!!!!!
 
 
-goob hvykin !   ![ggoob2](https://github.com/user-attachments/assets/ad757eee-21da-42fe-8b31-a792a680f05f)
-
-
-
 they / she prns , but they / them most preferred!!!
+
 
 always iwc unless youre oomf ! ayayay
 
+goob dw hvykin
 
-![ggoob1](https://github.com/user-attachments/assets/c3f282cf-edec-47d0-ab68-11059dc8cc29)   multifandom+shipper . knifecase iwvec
+
+![ggoob1](https://github.com/user-attachments/assets/f5e42760-de17-41c6-8e06-999954a2c5a6)
+
 
 
 main fandoms : osc, dw, fnaf, rodamrix, tadc, md. blocktales, lhg, terraria!!!
+
+basic dni criteria, proshippers, people who CANNOT stand opinions
+
+
+![ggoob2](https://github.com/user-attachments/assets/6c1f59d1-ef0b-48f6-a854-99b2d7baf622)
+
 
 
 ![dividerup](https://github.com/user-attachments/assets/b7e36fa4-e9a5-4fa6-835e-296b34677f1d)
